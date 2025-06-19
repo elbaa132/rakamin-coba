@@ -1,2 +1,7 @@
-# rakamin-coba
-day 1 bootcamp
+# MarellaElbaNafisa
+
+nenek gayung ihh serem
+
+haha hihi
+
+takuttt
